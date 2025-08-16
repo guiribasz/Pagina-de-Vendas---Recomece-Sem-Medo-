@@ -1,1 +1,0 @@
-# Pagina-de-Vendas---Recomece-Sem-Medo-
